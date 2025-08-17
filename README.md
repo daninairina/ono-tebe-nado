@@ -1,1 +1,1 @@
-https://github.com/daninairina/ono-tebe-nado
+https://github.com/daninairina/ono-tebe-nado-fd
